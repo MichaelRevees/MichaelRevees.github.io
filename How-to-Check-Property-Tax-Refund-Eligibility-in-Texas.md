@@ -48,6 +48,7 @@ Documents You Should Keep
 
 Letters or notices from your local tax office
 
+
 Conclusion
 
 Finding out whether you qualify for a Texas property tax refund does not have to be complicated. Start by reviewing your payment history, appraisal information, and any exemptions that may apply to your property.
